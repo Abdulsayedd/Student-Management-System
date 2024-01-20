@@ -51,6 +51,6 @@ If you are interested in purchasing the Student Management System, please contac
 - WhatsApp/Call: 01093307397
 - WhatsApp/Call: 01288513225
 - WhatsApp: 01032443829
-- Email: sayed.work223@gmail.com
+- Email: abdulsayedd@gmail.com
 
 We appreciate your interest and support!
